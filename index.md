@@ -1,6 +1,6 @@
 # Welcome to Scout Provisions
 
-Scout Provisions is a commercial build-out sourcing specialist, located in Dallas, Texas; since 2022 it has provided high quality build-out materials at a fraction of the cost across the American South. We work with tenants and general contractors to ensure superior outcomes at bargain prices.
+Scout Provisions is a commercial build-out sourcing specialist, located in Dallas, Texas; since 2022 we have provided high quality build-out materials at a fraction of the cost across the American South. We work with tenants and general contractors to ensure superior outcomes at bargain prices.
 
 ## [VIDEO HERE](https://www.youtube.com/watch?v=BIH6STTzwrQ)
 
@@ -20,11 +20,11 @@ Even with the best of intentions, tenants fall prey to a number of factors:
 
 ## Why use Scout Provisions
 
-### Scout Provisions was born out of experience - its management team has overseen over 300 commercial build-outs in the greater South of the US, representing over $1,000,000 spent on build-out materials. 
+### Scout Provisions was born out of experience - our management team has overseen over 300 commercial build-outs in the greater South of the US, representing over $1,000,000 spent on build-out materials. 
 
 After supporting dozens of tenants struggling with higher-than-expected build-out costs, Scout was formed to help tenants anticipate and control these costs early in the build-out process. 
 
-Scout's planning process features three distinct, crucial benefits in the build-out process:
+Our planning process features three distinct, crucial benefits in the build-out process:
 
 **1. Cost control and savings for tenants**
 
